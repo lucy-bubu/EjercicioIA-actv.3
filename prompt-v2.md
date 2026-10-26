@@ -1,0 +1,1 @@
+Vale, pero me gustaría que fuese más girly pop core y que sea de temática magical girls, sailor moon, pichi pichi pitch, madoka, etc
